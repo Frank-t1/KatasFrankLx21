@@ -1,0 +1,1 @@
+![image](https://github.com/Frank-t1/KatasFrankLx21/blob/main/ScreenshotKata2.png)
